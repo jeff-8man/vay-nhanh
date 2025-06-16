@@ -21,9 +21,8 @@
 
 ## [Top 1 nền tảng hỗ trợ vay tiền H5 nhanh, 24/7 (không cần gặp mặt)](https://tmstrack.com/?a=270757&o=114342&c=0&co=332498&mt=5)
 
-### [Jeff](https://tmstrack.com/?a=270757&o=114342&c=0&co=332498&mt=5)
 
-## 👉👉👉 [Nhấn để đăng ký](https://tmstrack.com/?a=270757&o=114342&c=0&co=332498&mt=5)
+# 👉👉👉 [Nhấn để đăng ký](https://tmstrack.com/?a=270757&o=114342&c=0&co=332498&mt=5)
 
 
 ## Hướng dẫn 4 bước đăng ký vay online H5 (dễ hiểu)
